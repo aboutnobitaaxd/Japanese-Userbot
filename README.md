@@ -1,8 +1,9 @@
-# Japanese-Userbot
 
-<h1 align="center"><b> 𝐉𝐚𝐩𝐚𝐧𝐞𝐬𝐞 𝐔𝐬𝐞𝐫𝐛𝐨𝐭 </b></h1>
 
-![20240118_204355](https://github.com/nobitaaxd/Japanese-Userbot/assets/156512147/fca1bc44-ff37-40c3-9706-6fd4444a0759)
+<h1 align="center"><b> 𝐉𝐚𝐩𝐚𝐧𝐞𝐬𝐞 𝐔𝐬𝐞𝐫𝐛𝐨𝐭❤️✨ </b></h1>
+
+![20240119_105851](https://github.com/nobitaaxd/Japanese-Userbot/assets/156512147/36a8600f-1a4a-4498-abff-9877dd09494e)
+
 
 
 <h2 align="center"> ωσяℓ∂ ℓαяgεsт αη∂ ғαsтεsт υsεявσт ηεvεя εxιsтε∂ ιη тнιs ωσяℓ∂
